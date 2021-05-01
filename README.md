@@ -1,0 +1,1 @@
+# soalut-icon
